@@ -1,2 +1,2 @@
 # App preview:
-![](https://thumbs.gfycat.com/ImpishOblongIntermediateegret-size_restricted.gif)
+![](https://thumbs.gfycat.com/FantasticAcclaimedGrison-size_restricted.gif)
